@@ -3,5 +3,5 @@ Walter, Donal Raymond V.
 Solomon, Marlon Gane
 Torres, Margarette
 Erandio, Reynalyn
-Alim, Kai
-Lacorte, Josh
+Alim, Keanu Charles
+Lacorte, Joshua
